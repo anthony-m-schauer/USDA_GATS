@@ -1,1 +1,0 @@
-# USDA_GATS
